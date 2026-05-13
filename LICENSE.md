@@ -1,4 +1,4 @@
-# 
+# vip Aseprite for PC | Aseprite for Windows Effect | adjustment-layers + raw-file-support offers the most advanced Aseprite for PC | Aseprite for Windows effect, with
 
 
 
